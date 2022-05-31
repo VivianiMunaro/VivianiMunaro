@@ -1,4 +1,2 @@
 - 👋 Hi, I’m @VivianiMunaro
-
-
-
+- 👀 estou interessada em aprender
